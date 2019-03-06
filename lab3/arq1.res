@@ -1,0 +1,16 @@
+Faixa3
+Faixa7
+Faixa4
+Faixa13
+Faixa3
+Faixa7
+Faixa16
+Faixa4
+Faixa1
+Faixa3
+Faixa23
+ChitaoEXororo-Evidencias
+Faixa5
+Faixa30
+Faixa26
+Faixa25
